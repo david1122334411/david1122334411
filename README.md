@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @david1122334411
 - 👀 I’m interested in ...programming and  coding
-- 🌱 I’m currently learning ...bachelors in computer science engineering
+- 🌱 I’m currently learning ...bachelors in business administration 
 - 💞️ I’m looking to collaborate on ...linkdin
 - 📫 How to reach me ...davidghoshal72@gmail.com
 - 😄 Pronouns: ...
